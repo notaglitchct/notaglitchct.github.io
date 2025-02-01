@@ -1,2 +1,0 @@
-# NotAGLITCHCT's Website
-
